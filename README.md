@@ -2,6 +2,8 @@
 
 ![image](GraduateSchoolAdmissionLetter.jpg)
 
+![image](MSEEdegree.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
